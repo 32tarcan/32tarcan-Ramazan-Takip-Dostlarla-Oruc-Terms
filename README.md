@@ -1,0 +1,1 @@
+# 32tarcan-Ramazan-Takip-Dostlarla-Oruc-Terms
